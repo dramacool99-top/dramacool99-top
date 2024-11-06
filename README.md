@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Jang Junhyuk
+- 👀 I’m interested in shopping, eating and sleeping. haha.
+- 🌱 I’m currently working on dramacool99.top
+- 📫 How to reach me? you don't need to. haha.
+- 😄 Pronouns: old fashioned. She Here
+- ⚡ Fun fact: nothing.
